@@ -5,7 +5,7 @@
 </p>
 
 
-<img width="450" src="https://i.postimg.cc/mkPgjvnq/image.png" alt="hm?" align="right" width="300" />
+<img width="350" src="https://i.postimg.cc/mkPgjvnq/image.png" alt="hm?" align="right" width="300" />
 
 　
 

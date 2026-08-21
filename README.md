@@ -6,9 +6,6 @@
 
 
 <img width="350" src="https://i.postimg.cc/mkPgjvnq/image.png" alt="hm?" align="right" width="300" />
-
-　
-
 　
 
 

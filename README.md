@@ -4,4 +4,24 @@
 
 </p>
 
-<p align="center"><img width="400" src="https://i.postimg.cc/mkPgjvnq/image.png" alt="hm?" align="left" width="300" /></p>
+<p align="center"
+
+<img width="350" src="https://i.postimg.cc/mkPgjvnq/image.png" alt="hm?" align="left" width="300" /></p>
+
+
+
+ 
+
+
+
+
+
+ ㅤ
+ 
+text
+<br/>
+text
+<br/>
+text
+
+</p>

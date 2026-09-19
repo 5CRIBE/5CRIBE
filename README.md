@@ -19,7 +19,7 @@ $${\color{#7d7d7d}{\textsf hellow,　we　are　the　video　home　system ... 
 <br>
 $${\color{#7d7d7d}{\textsf any　pronouns　and　are　on　the　aroace　spectrum}}$$ 　 ♡
 
-$${\color{#7d7d7d}{\textsf current　hosts;}}$$ 　[adam](https://intruderalert.carrd.co), 　[kaveh](https://rentry.co/dendropilled), 　and　[jonah](https://rentry.co/90s-web) 　 (つ﹏<)･ﾟ｡
+$${\color{#7d7d7d}{\textsf current　hosts;}}$$ 　[adam](https://intruderalert.carrd.co), 　[kaveh](https://fluffle.cc/kavehs), 　and　[jonah](https://rentry.co/90s-web) 　 (つ﹏<)･ﾟ｡
 
 $${\color{#cccccc}{\textsf read　our　rentry　for　more　information!}}$$
 

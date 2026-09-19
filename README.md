@@ -29,6 +29,6 @@ $${\color{#cccccc}{\textsf read　our　rentry　for　more　information!}}$$
 
 <p align="center"
   
-[rentry](https://rentry.co/-thegraveyard) ㅤ ㅤ★ ㅤ ㅤ[atabook](https://vhs.atabook.org) ㅤ ㅤ★ ㅤ ㅤ[current fronter](https://pluralkit.xyz/f/wokmy)
+[rentry](https://fluffle.cc/kosugi) ㅤ ㅤ★ ㅤ ㅤ[atabook](https://vhs.atabook.org) ㅤ ㅤ★ ㅤ ㅤ[current fronter](https://pluralkit.xyz/f/wokmy)
 
 </p>

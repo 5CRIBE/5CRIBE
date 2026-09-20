@@ -1,6 +1,6 @@
 <p align="center"
   
-![](https://komarev.com/ghpvc/?username=mandeIacounty&color=000000&style=plastic&label=blueprints)　 $${\color{#f2f2f2} the　scribe's　work　is　simple　. . .}$$ 　( ´ཀ` )
+![](https://komarev.com/ghpvc/?username=mandeIacounty&color=000000&style=plastic&label=alternates)　 $${\color{#f2f2f2} the　scribe's　work　is　simple　. . .}$$ 　( ´ཀ` )
 
 </p>
 

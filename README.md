@@ -1,6 +1,6 @@
 <p align="center"
   
-![](https://komarev.com/ghpvc/?username=mandeIacounty&color=000000&style=plastic&label=alternates)　 $${\color{#f2f2f2} with　broken　flesh　and　contorted　bones　. . .}$$ 　( ´ཀ` )
+![](https://komarev.com/ghpvc/?username=mandeIacounty&color=000000&style=plastic&label=alternates)　 $${\color{#f2f2f2} with　broken　flesh　and　contorted　bones　. . .}$$
 
 </p>
 
